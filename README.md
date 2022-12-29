@@ -1,4 +1,8 @@
 ### Hi there 👋
+### Post Bac Diploma graduate in Data Analytics and Marketing.
+### Worked as an Analyst at ANZ.
+### How to reach me:2368625070
+### Pronouns:She/Her
 
 <!--
 **LincyAntony/LincyAntony** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
