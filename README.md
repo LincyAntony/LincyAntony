@@ -1,5 +1,6 @@
-### Hi there 👋
-### Post Bac Diploma graduate in Data Analytics and Marketing.
+### About Me: 
+### I am a Data Analyst from Canada.
+### Post Bac Diploma graduate in Data Analytics and Marketing | Electronics and Communication Engineer.
 ### Worked as an Analyst at ANZ.
 ### How to reach me:2368625070
 ### Pronouns:She/Her
